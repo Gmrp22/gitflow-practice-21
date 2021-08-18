@@ -1,0 +1,5 @@
+-Paramore
+-Bring me the horizon
+-Twenty one pilots
+-Alesso
+-Zed
