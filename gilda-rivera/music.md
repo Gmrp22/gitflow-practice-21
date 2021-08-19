@@ -1,3 +1,3 @@
 #Mis top canciones
 
-- No se 
+- No tengo una cancion o artista favorito
